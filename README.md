@@ -12,6 +12,4 @@
 ## 视频教程
 
 https://www.bilibili.com/video/av41559729/
-
-## 交流群
-
+或http://yun.itheima.com/course/520.html?bili
